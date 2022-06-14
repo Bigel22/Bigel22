@@ -8,5 +8,6 @@
 Bigel22/Bigel22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 
----> Hey! Don't leave yet, check out my portfolio 👇👇👇🤗
-😔- No voiceovers here though, Hit me up on discord and I will send them to you. 
+---> Hey! Don't leave yet, hit me up on Discord to check out my works  👇👇👇🤗
+@big_el#1077
+ 
