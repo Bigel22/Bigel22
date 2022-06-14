@@ -2,7 +2,7 @@
 - 👀 I’m interested in Defi, Web 3,  and the cryptocurrency space in general.
 - 🌱 I’m currently learning UI/UX design.
 - 💞️ I’m looking to work with web 3 companies that need services such as Whiteboard animations to explain how to use their protocols or products, voiceovers community moderation, memes/gif to engage their community. 
-- 📫 How to reach me? You can reach me on Twitter: @thecomeupstory22, Telegram ID: @thecomeupstory22, Discord: @big_el#1077
+- 📫 How to reach me? You can reach me on Twitter: @thecomeupstory7, Telegram ID: @thecomeupstory22, Discord: @big_el#1077
 
 <!---
 Bigel22/Bigel22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
